@@ -1,5 +1,5 @@
 <h2><img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="30"/>នួន​ វិសាល👨🏻‍💻🤍, Hi there! I'm Nuon Visal! <img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"></h2>
-<img align='right' src="" width="250">
+<img align='right' src="https://i.pinimg.com/originals/69/d2/8c/69d28cb69a870c8ebee0149f7d9fd7a5.gif" width="250">
 </a>
 
 ### 🤝🏻 &nbsp;Connect with Me
